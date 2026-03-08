@@ -1,0 +1,1 @@
+# tinkercad-project---Alternat-v-behatol-sjelz-klasszikus-paradox-logik-val
